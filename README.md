@@ -1,0 +1,3 @@
+# We bow to our Master Shkreli
+
+Learning about E-Commerce, Shipping & Transportation and the craft itself...
